@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fredoka+One&duration=3700&pause=250&color=F7E834&center=true&width=435&lines=+++++++++++snoopy+woopy+doopy+...;++++++++++++++++elloo!+%E2%95%B0(%E2%96%94%E2%88%80%E2%96%94)%E2%95%AF)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fredoka+One&duration=3700&pause=250&color=F7E834&center=true&width=435&lines=elloo!+%E2%95%B0(%E2%96%94%E2%88%80%E2%96%94)%E2%95%AF;hehehehe+%E2%8A%82(%E2%96%80%C2%AF%E2%96%80%E2%8A%82+))](https://git.io/typing-svg)
